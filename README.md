@@ -13,8 +13,6 @@
 
 - 📫 How to reach me **stuart.yitingchen@gmail.com**
 
-- 📄 Know about my experiences [TBD](TBD)
-
 - ⚡ Fun fact **I am a little fire lit in the corner.**
 
 <h3 align="left">Connect with me:</h3>
